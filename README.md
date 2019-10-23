@@ -6,7 +6,7 @@
 
 - College of Business and Economics
 
-**Seton Hall Preparatory School,**** West Orange, NJ **                                                         ** June 2019**
+**Seton Hall Preparatory School,** West Orange, NJ **                                                         **June 2019**
 
 - National Honors Society
 - Magna Cum Laude
